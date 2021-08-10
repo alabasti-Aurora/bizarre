@@ -1,3 +1,6 @@
 # bizarre
 
 Iniciando análisis
+
+
+nbdkjbvkajlbvhsfbvjhafbvjhfkad
