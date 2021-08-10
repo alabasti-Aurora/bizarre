@@ -1,1 +1,3 @@
 # bizarre
+
+Iniciando análisis
